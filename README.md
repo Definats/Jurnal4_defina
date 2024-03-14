@@ -1,1 +1,2 @@
-# Jurnal4_defina
+Nama: Defina Tri Salsabila
+Nim: 607062300126
